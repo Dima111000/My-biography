@@ -6,5 +6,4 @@
 
 
 
->>>>>>>https://web.telegram.org/#/im?p=@DmitryFuga
 
